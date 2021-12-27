@@ -1,1 +1,1 @@
-# auth.gg-crack-ok
+I do Not own this crack dont cry to me ok???
